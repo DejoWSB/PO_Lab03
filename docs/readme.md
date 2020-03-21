@@ -1,0 +1,1 @@
+wygenerowana dokumentacja
